@@ -1,3 +1,4 @@
 Al Hambra
 
-Ringgas W Sarumpaet
+Ringgas W Sarumpaet (kedua)
+
