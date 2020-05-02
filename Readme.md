@@ -1,2 +1,2 @@
 Al Hambra
-Mawan Irwansyah
+Mawan Irwansyah - PT INALUM (Persero)
